@@ -1,4 +1,4 @@
- 　　 　　 ⟡　　﹒　 “ HEWWO　ISTP 6w7 introvert 　idc abt pronouns, but i prefer she/her　  　 ” 　　 　　 　　 　　　 　　 　　 　　 　　 　　 　 “ 　mostly afk... c+h always allowed i dont bite 　 ” 　　 ⟡　　﹒　
+![](https://komarev.com/ghpvc/?username=i596tt6w78z&color=5b5b5b) 　　 　　 ⟡　　﹒　 “ HEWWO　ISTP 6w7 introvert 　idc abt pronouns, but i prefer she/her　  　 ” 　　 　　 　　 　　　 　　 　　 　　 　　 　　 　 “ 　mostly afk... c+h always allowed i dont bite 　 ” 　　 ⟡　　﹒　
 
 ![photo_2025-12-22_18-34-25](https://github.com/user-attachments/assets/70e96833-2d95-4666-a788-0840fe05c705)
 
