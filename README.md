@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=i596tt6w78z&color=ce86ac) 　　 　　 ⟡　　﹒　 “ love you hate me. . . your my family !!!　  　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　ugly things that. . . i think daily 　 ” 　　 ⟡　　﹒　
+![](https://komarev.com/ghpvc/?username=how8y1w4&color=ce86ac&label=.'sobbspacece) 　　 　　 ⟡　　﹒　 “ love you hate me. . . your my family !!!　  　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　ugly things that. . . i think daily 　 ” 　　 ⟡　　﹒　
 
 ***
 ![photo_2025-12-23_09-07-21](https://github.com/user-attachments/assets/50c88c45-8f6e-4fbd-bcd3-460a24c081ca)
