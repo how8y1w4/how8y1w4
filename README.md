@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=how8y1w4&color=d11d29&label=TCH-+chaos+control) 　　 　　 ⟡　　﹒　 “ love you hate me. . . your my family !!!　  　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　ugly things that. . . i think daily 　 ” 　　 ⟡　　﹒　
-
 ***
 ![photo_2025-12-24_11-06-22](https://github.com/user-attachments/assets/1a171402-7666-43fe-b454-177e017e74a6)
-![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=900&size=15&duration=5009&pause=1000&color=d11d29&width=440&height=63&lines=%22+tell+me+lover%2C+still+you+love+me%3F+%22;%22+death+is+always%2C+near+me+watching+%22)
 ***
 　ㅤㅤㅤㅤㅤㅤㅤ　 𓎟  　　 . 　　 your my lovely angel baby !!!　 　 　  break my neck. . . and leave me bleedingㅤ .  　 𓎟 
+ ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=900&size=15&duration=5009&pause=1000&color=d11d29&width=440&height=63&lines=%22+tell+me+lover%2C+still+you+love+me%3F+%22;%22+death+is+always%2C+near+me+watching+%22)
