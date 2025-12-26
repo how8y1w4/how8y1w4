@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=how8y1w4&color=06042b&label=n071c3Ð) 　　 　　 ⟡　　﹒　 “ £0v3 ¥0µ h473 m3. . . ¥0µr m¥ ƒ4m1£¥ !!!　  　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　µ9£¥ 7h1n9$ 7h47. . . 1 7h1n|{ Ð41£¥ 　 ” 　　 ⟡　　﹒　
+![](https://komarev.com/ghpvc/?username=how8y1w4&color=5b5b5b&label=n071c3Ð) 　　 　　 ⟡　　﹒　 “ £0v3 ¥0µ h473 m3. . . ¥0µr m¥ ƒ4m1£¥ !!!　  　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　µ9£¥ 7h1n9$ 7h47. . . 1 7h1n|{ Ð41£¥ 　 ” 　　 ⟡　　﹒　
 ***
 photo
 ***
