@@ -4,5 +4,5 @@ photo
 ***
 　ㅤㅤㅤㅤㅤㅤㅤ　 𓎟  　　 . 　　 ¥0µr m¥ £0v3£¥ 4n93£ b4b¥ !!!　 　 　  br34|{ m¥ n3(|{. . . 4nÐ £34v3 m3 b£33Ð1n9ㅤ .  　 𓎟 
  
-[to translate the text in my README file](http://www.albinoblacksheep.com/text/leet)
-ㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=17&pause=1000&color=D5DADE&width=435&lines=%22+73%C2%A3%C2%A3+m3+%C2%A30v3r%2C+%2471%C2%A3%C2%A3+%C2%A50%C2%B5+%C2%A30v3+m3%3F+%22;%22+%C3%90347h+1%24+4%C2%A3w4%C2%A5%24%2C+n34r+m3+w47ch1n9+%22+)](https://git.io/typing-svg)
+[to translate the text in my README file, if anyone needs](http://www.albinoblacksheep.com/text/leet)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=17&pause=1000&color=D5DADE&width=435&lines=%22+73%C2%A3%C2%A3+m3+%C2%A30v3r%2C+%2471%C2%A3%C2%A3+%C2%A50%C2%B5+%C2%A30v3+m3%3F+%22;%22+%C3%90347h+1%24+4%C2%A3w4%C2%A5%24%2C+n34r+m3+w47ch1n9+%22+)](https://git.io/typing-svg)
