@@ -5,7 +5,7 @@
 
 ![photo_2025-12-29_17-00-39](https://github.com/user-attachments/assets/b5cbf18c-80ab-499b-89a4-e3adaa8503f1)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=13&pause=1000&color=F1F7E7&background=0B0900&multiline=true&width=435&lines=%22+%F0%9D%99%A2%F0%9D%99%AE+%F0%9D%99%9D%F0%9D%99%9A%F0%9D%99%A7%F0%9D%99%A4%F0%9D%99%9A%F0%9D%99%A8+%F0%9D%99%96%F0%9D%99%A7%F0%9D%99%9A+%F0%9D%99%98%F0%9D%99%A4%F0%9D%99%A2%F0%9D%99%9E%F0%9D%99%A3%F0%9D%99%9C+%F0%9D%99%96%F0%9D%99%A1%F0%9D%99%9E%F0%9D%99%AB%F0%9D%99%9A+%22;%22+'%F0%9D%99%98%F0%9D%99%96%F0%9D%99%AA%F0%9D%99%A8%F0%9D%99%9A+%F0%9D%99%A7%F0%9D%99%9E%F0%9D%99%9C%F0%9D%99%9D%F0%9D%99%A9+%F0%9D%99%A4%F0%9D%99%A3+%F0%9D%99%A2%F0%9D%99%AE+%F0%9D%99%9C%F0%9D%99%A7%F0%9D%99%96%F0%9D%99%AB%F0%9D%99%9A+%F0%9D%99%A8%F0%9D%99%9D%F0%9D%99%9A'%F0%9D%99%A8+%F0%9D%99%9C%F0%9D%99%A4%F0%9D%99%9E%F0%9D%99%A3%F0%9D%99%9C+%F0%9D%99%A9%F0%9D%99%A4+%F0%9D%99%99%F0%9D%99%A7%F0%9D%99%96%F0%9D%99%9C+%F0%9D%99%A2%F0%9D%99%9A+%F0%9D%99%99%F0%9D%99%A4%F0%9D%99%AC%F0%9D%99%A3+%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=14&pause=1000&color=F7F6E7&background=0B0900&multiline=true&width=435&lines=%E3%85%A4your+my%E3%85%A4+lovely%E3%85%A4+angel%E3%85%A4baby;%E3%85%A4break%E3%85%A4+my+%E3%85%A4neck+%E3%85%A4and%E3%85%A4+leave+me%E3%85%A4+bleeding+)](https://git.io/typing-svg)
 
 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  　　 ㅤ 　　 b day 27.12, call me " seva " ㅤ　 　 　  DNI: [base](https://basic-dni.crd.co/), people who are too hyperactiveㅤ ㅤ  　 ㅤ 
 ![dnce](https://github.com/user-attachments/assets/a97d0f53-21d9-4aae-a9aa-452638aeb975)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![lerolero-funny-cat](https://github.com/user-attachments/assets/dbae2840-084b-429a-a426-60462a7b1b08)
