@@ -1,4 +1,3 @@
-![divider](https://github.com/user-attachments/assets/957f69ae-7eac-40a4-92f8-870f1ca7d2cd)![divider](https://github.com/user-attachments/assets/bb09fd0b-464f-4c7e-92a4-5b784d5aa238)
 
 ![](https://komarev.com/ghpvc/?username=how8y1w4&color=5d5d5d&label=𝐧𝐨ti𝐜𝐞d) 　　 　　 ㅤ　　ㅤ　 “ 𝐡ewwo e𝐯𝐞ryo𝐧𝐞ㅤㅤ IS𝐓P 𝟔w𝟓 𝐢𝐧tro𝐯𝐞𝐫t　 　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　𝐢 𝐚m 𝐨𝐩e𝐧 t𝐨 𝐧e𝐰 𝐚cqua𝐢𝐧t𝐚𝐧𝐜es 　 ” 　　 ㅤ　　　
 ***
