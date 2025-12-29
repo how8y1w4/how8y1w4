@@ -1,9 +1,11 @@
-![](https://komarev.com/ghpvc/?username=how8y1w4&color=5d5d5d&label=n071c3Ð) 　　 　　 ⟡　　﹒　 “ h3ww0 3v3ry0n3. . . 1STP 6w5 1ntr0v3rt　  　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　1 4m 0p3n t0 n3w 4cqu41nt4nc3s!! 　 ” 　　 ⟡　　﹒　
-***
-![photo_2025-12-26_13-52-48](https://github.com/user-attachments/assets/ce9e6bf1-7d12-4390-bf11-b618c9bd7218)
-*** 
+![cats-divider](https://github.com/user-attachments/assets/e8106803-4e36-4734-8712-8b6a58f8d713)![cats-divider](https://github.com/user-attachments/assets/3a8082c2-4a63-419e-95a6-82674b3423d0)![cats-divider](https://github.com/user-attachments/assets/e86bfbb9-66dd-41c4-8ae5-edc21cc2b2d8)![cats-divider](https://github.com/user-attachments/assets/791db6d5-a420-4547-8ecf-90a59f8b492c)![cats-divider](https://github.com/user-attachments/assets/e0ff8f80-f312-41d1-8a96-df4769f733b0)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=15&pause=1000&color=D5DADE&background=090909&multiline=true&width=435&lines=%22+1+n33d+s0m3th1ng+b3f0r3+th3+sh0w+%22;%22+just+4+l1ttl3+s0m3th1ng+t0+m4k3+m3+g0+%22)](https://git.io/typing-svg)
+![](https://komarev.com/ghpvc/?username=how8y1w4&color=5d5d5d&label=noticed) 　　 　　 ㅤ　　ㅤ　 “ hello everyoneㅤㅤ ISTP 6w5 introvert　  　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　i am open to new acquaintances 　 ” 　　 ㅤ　　　
 
-　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓎟  　　 . 　　 b d4y 27.12, c4ll m3 " s3v4 " !!!　 　 　  DN1: [b4s3](https://basic-dni.crd.co/), p30pl3 wh0 4r3 t00 hyp3r4ct1v3ㅤ .  　 𓎟 
-![roblox-grace](https://github.com/user-attachments/assets/61613692-b11c-47c7-bb84-9c212e67aa55)
+![photo_2025-12-29_17-00-39](https://github.com/user-attachments/assets/b5cbf18c-80ab-499b-89a4-e3adaa8503f1)
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=14&pause=1000&color=F6F7F4&background=0E0C00&multiline=true&width=435&lines=%22+%D0%BB%CA%8F%D1%87%CF%89%E1%B4%87+%D0%BD%E1%B4%87+%D0%BF%D0%B8%D0%B7%D0%B4%D0%B8+%D0%BD%E1%B4%80+%D0%BC%E1%B4%87%D0%BD%D1%8F%2C+%CA%8F+%D0%BC%E1%B4%87%D0%BD%D1%8F+%D1%81%D1%82%D0%B2%D0%BE%D0%BB+%22;%22+%D1%8F+%D1%81%D0%B2%D0%BE%D0%B8%D0%BC+%E1%B4%87%D2%95%E1%B4%80%D0%BB%D1%8C%D0%BD%D0%B8%D0%BA%D0%BE%D0%BC+%D0%BF%CA%8Fr%E1%B4%80%D0%BB+%D0%B8%D0%BD%D1%82%E1%B4%87%E1%B4%98%D0%BF%D0%BE%D0%BB+%22)](https://git.io/typing-svg)
+
+　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  　　 ㅤ 　　 b day 27.12, call me " seva " ㅤ　 　 　  DNI: [base](https://basic-dni.crd.co/), people who are too hyperactiveㅤ ㅤ  　 ㅤ 
+![dnce](https://github.com/user-attachments/assets/a97d0f53-21d9-4aae-a9aa-452638aeb975)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![lerolero-funny-cat](https://github.com/user-attachments/assets/dbae2840-084b-429a-a426-60462a7b1b08)
