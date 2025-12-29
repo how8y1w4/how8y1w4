@@ -1,4 +1,5 @@
-![divider-mandala](https://github.com/user-attachments/assets/cdcab460-d81a-49d1-9a47-fb0372d02cda)![divider-mandala](https://github.com/user-attachments/assets/0a844fa6-1440-4875-b885-1450b58ba7f4)
+![lace-divider](https://github.com/user-attachments/assets/f909f0ea-8157-4727-b397-c355afd698b2)![lace-divider](https://github.com/user-attachments/assets/4d9026d6-c278-4dc0-a1ba-779c07974acb)
+
 
 ![](https://komarev.com/ghpvc/?username=how8y1w4&color=5d5d5d&label=𝐧𝐨ti𝐜𝐞d) 　　 　　 ㅤ　　ㅤ　 “ 𝐡ewwo e𝐯𝐞ryo𝐧𝐞ㅤㅤ IS𝐓P 𝟔w𝟓 𝐢𝐧tro𝐯𝐞𝐫t　 　 ” 　　 　　 　　 　　　 　　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 　　 　　 　　 　 “ 　𝐢 𝐚m 𝐨𝐩e𝐧 t𝐨 𝐧e𝐰 𝐚cqua𝐢𝐧t𝐚𝐧𝐜es 　 ” 　　 ㅤ　　　
 ***
