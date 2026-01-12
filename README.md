@@ -1,2 +1,1 @@
-<img width="272" height="272" alt="Без названия221_20260111100359" src="https://github.com/user-attachments/assets/18cce386-316f-4e62-a611-482894ab6d5d" />
-
+![eyes-eye](https://github.com/user-attachments/assets/ff2950e6-7758-4434-9160-35ecda0b8a5f)
