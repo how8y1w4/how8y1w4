@@ -1,1 +1,3 @@
-![eyes-eye](https://github.com/user-attachments/assets/ff2950e6-7758-4434-9160-35ecda0b8a5f)
+![ohio-text](https://github.com/user-attachments/assets/c6da1228-ec66-4953-980f-0413c26e224e)
+
+![nyan-cat](https://github.com/user-attachments/assets/97b5d34f-e31b-4af3-aa51-9210fbd69328) 
