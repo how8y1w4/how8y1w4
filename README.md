@@ -1,2 +1,3 @@
-![flamingtext_com-1151550101](https://github.com/user-attachments/assets/53605634-3da3-4924-987e-fe08e0a3bd92)
-![seal-petting-vumie-seal](https://github.com/user-attachments/assets/fcb21494-ba6e-4207-8c3e-c545a9adff72) 
+<img width="511" height="112" alt="476624540-cc87804e-f4ec-475f-b425-193056b68a7e" src="https://github.com/user-attachments/assets/2799e74a-3af7-4e37-949d-c840e52e4f4b" />
+ 
+
